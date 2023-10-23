@@ -1,0 +1,2 @@
+# BAD
+Good mind 
